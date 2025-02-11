@@ -1,4 +1,4 @@
-## Olá! me chamo Mayirla Borges.
+## Olá! Me chamo Mayirla Borges.
 
 - ✴ Tenho 17 anos
 - 🛡 Estudante de CyberSecurity
